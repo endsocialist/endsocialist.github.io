@@ -25,7 +25,6 @@
 # see twitter mine_moment.
 
 # 6. putin is a socialist.He says "I never exit Soviet Communist Party, it's Soviet Union who crash".So putin's spy is also BIG BREAST.
-<code>
-I think ukraine people know more.
-<code/>
+# I think ukraine people know more.
+
 [https://endsocialist.github.io](https://endsocialist.github.io)
