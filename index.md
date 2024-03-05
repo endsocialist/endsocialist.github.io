@@ -11,7 +11,7 @@
 # 1. The list below is based on who do most BAD on PRC citizens.
 # 2. The CCP Police: 國保大隊, or 政保大隊
 # 3. The CCP official National Security Agency: 國安
-# 4. The CCP's Party Spy System: 中共統戰, 中共中聯部
+# 4. The CCP's Party Spy System: 中共統戰, 中共中聯部 MOST BAD BECAUSE OF THEIR WAY OF KILLING: 分割 包圍 圍剿 WHICH IS LIKELY A 軍統 WHO IS ALSO A 列寧式社會主義特務組織
 # 5. The CCP Military: 中央軍委辦公室
 #
 # see zhina.red 紅岸基金會 (it does not means 支那, it means CCP and the closed mind (taught by CCP school)* make PRC citizens 支那)
